@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @ghoter922
-- 👀 I’m interested in Mobile and website design
+- 👋 Hi, I’m UI Designerwith 3 years of experince in SaaS product design.
+- 👀 I’m willing to work with compnay of individual for providing ui design solution.
 
 - 💞️ I’m looking to collaborate on design Team
 - 📫 How to reach me Skype live:.cid.3d1508cab96f62f1
